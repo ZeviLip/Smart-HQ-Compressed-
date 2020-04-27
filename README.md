@@ -1,0 +1,2 @@
+# Smart-HQ-Compressed-
+QuickZoom
